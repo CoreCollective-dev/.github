@@ -1,1 +1,0 @@
-CoreCollective Information
